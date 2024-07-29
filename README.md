@@ -6,9 +6,9 @@ Xem Phim Detective Conan Movie 27 [Phim Điện Ảnh Conan 27: Ngôi Sao 5 Cán
 
 ============================
 
-🎬◉▶️<b><a target="_blank" href="https://hhchina.app/thong-tin-phim/conan-the-movie-27-ngoi-sao-nam-canh-trieu-do.html"> Xem Phim Detective Conan Movie 27 (2024) Vietsub</a></b>
+🎬◉▶️<b><a target="_blank" href="https://hhchina.net/thong-tin-phim/conan-the-movie-27-ngoi-sao-nam-canh-trieu-do.html"> Xem Phim Detective Conan Movie 27 (2024) Vietsub</a></b>
 
-📁◉▶️<b><a target="_blank" href="https://hhchina.app/thong-tin-phim/conan-the-movie-27-ngoi-sao-nam-canh-trieu-do.html"> Tải Phim Detective Conan Movie 27 (2024) Full HD</a></b>
+📁◉▶️<b><a target="_blank" href="https://hhchina.net/thong-tin-phim/conan-the-movie-27-ngoi-sao-nam-canh-trieu-do.html"> Tải Phim Detective Conan Movie 27 (2024) Full HD</a></b>
 
 ============================
 
